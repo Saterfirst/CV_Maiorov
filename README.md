@@ -1,0 +1,1 @@
+# CV_Sergei_Maiorov_QA_Engineer_Finland
